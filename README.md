@@ -3,6 +3,7 @@
 These are a few of my favorite things:
 
 - Onions
+- Celery
 - Raindrops on roses
 - Whiskers on kittens
 - Bright copper kettles
