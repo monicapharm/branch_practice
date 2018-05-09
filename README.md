@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Onions
 - Celery
-- Raindrops on violets
+- Raindrops on lillies
 - Whiskers on kittens
 - Bright copper kettles
 - Warm woolen mittens
